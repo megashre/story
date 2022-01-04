@@ -1,2 +1,1 @@
-they had a race.tortoise won.moral of the story is slow and steady wins the race
-i like this story
+they had a race.rabbit won.moral of the story is be quick and win the race
